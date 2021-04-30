@@ -4,7 +4,7 @@ I'm Abe. I like getting my hands dirty whether it's writing code, building contr
 
 - 🌱💻 I'm currently working at [Luma](https://www.lumateams.com/) in order to improve the process of interviewing
 - 💚 Getting my hands real dirty with hot composting, vermicomposting, and beekeeping
-- 🥏 Unable to wait to play ultimate again
+- 🥏 Not great at Ultimate, but love learning and playing
 
 📫 How to reach me: 
 - 💻 [LinkedIn](https://www.linkedin.com/in/whoabe/)
