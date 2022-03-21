@@ -2,7 +2,7 @@
 
 I'm Abe. I like getting my hands dirty whether it's writing code, building contraptions, composting, or playing sports.
 
-- 🌱💻 I'm currently working at [Luma](https://www.lumateams.com/) in order to improve the process of interviewing
+- 🌱💻 I'm currently working at [Fashionphile](https://www.fashionphile.com/) 
 - 💚 Getting my hands real dirty with hot composting, vermicomposting, and beekeeping
 - 🥏 Not great at Ultimate, but love learning and playing
 
